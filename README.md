@@ -1,0 +1,1 @@
+# script-for-1c-hotel
